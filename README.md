@@ -1,6 +1,9 @@
 # My-idea-rough-version-
 
 ## 0913
+## ai 制作一些奇葩无用产品的影片
+
+## 0913
 https://www.crazygames.com/game/dino-realms-ets
 这类进化游戏算是蛮有创意，也有意思的
 
