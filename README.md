@@ -1,5 +1,9 @@
 # My-idea-rough-version-
 
+## 1004
+## 宣传app 的手法：制造搞笑视频
+https://chatgpt.com/s/t_6ac2338c91388191a7558759a945efa6 这个我真的笑烂了
+
 ## 0923
 ## titkok 制作一些不露脸asmr，完全黑屏，只有声音，猜什么声音/用奇葩的器材
 
